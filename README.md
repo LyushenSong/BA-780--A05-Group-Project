@@ -9,7 +9,6 @@ Neeharika Kamireddy
 Pengru Lin
 
 References: 
-Reference list
 
 Websites:
 
